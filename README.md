@@ -1,7 +1,7 @@
-# Spam Wa V2.0
+# Spam Wa Unlimited
 
 ```
-Script Spam Chat WhatsApp Versi 2.0 Ini Di Ciptakan Untuk MengePrank Temen Lu Yg Suka Mabar Game Online
+Script Spam Chat WhatsApp Unlimited Ini Di Ciptakan Untuk MengePrank Temen Lu Yg Suka Mabar Game Online
 Atau Ngepam Wa Mantan Lu Juga Mantap Tuh Awokawok :v
 ```
 # Info
